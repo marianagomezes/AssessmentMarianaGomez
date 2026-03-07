@@ -22,7 +22,7 @@ En paso 4: "CpSo jO 7984!"
 
 En paso 5: "!4897 Oj oSpC"
 
-Respuesta Mariana:
+**Respuesta Mariana:**
 
 Texto elegido: "MUNDIAL 2026" 
 
